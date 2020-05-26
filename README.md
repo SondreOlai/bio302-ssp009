@@ -2,10 +2,10 @@
 Bio302 stuff 
 
 Here are some questions 
-Name? 
+Name? Ingvild
 
-What kind of scientist do you tell people you are at dinner parties? 
+What kind of scientist do you tell people you are at dinner parties? Biologist
 
-In the past month, what are the three main activities you have been doing at work? 
+In the past month, what are the three main activities you have been doing at work? Reading, writing, Peer Reviewing
 
-What are the three most imporant tools/strategies you use for organizing your work? 
+What are the three most imporant tools/strategies you use for organizing your work? idk
